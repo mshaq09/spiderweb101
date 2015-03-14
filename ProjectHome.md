@@ -1,0 +1,1 @@
+A project by the project team, Code Sync to exploit the potential of a wireless broadband to provide remote and mobile access to online catalogs, chat platforms and to deliver services to enhance economic & creative opportunities in the residential areas within the project reach.
